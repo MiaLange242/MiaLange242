@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MiaLange242
-- 👀 I’m interested in GPTs 
+- 👀 I’m interested in AI-Powered Marketing 
 - 🌱 I’m currently learning AI for marketing automation 
-- 💞️ I’m looking to collaborate on GPTs for Marketing 
+- 💞️ I’m looking to collaborate on AI Tools for Marketing Solutions 
 - 📫 How to reach me X at MiaLange242
 
 
